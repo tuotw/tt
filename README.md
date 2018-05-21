@@ -9,14 +9,6 @@
 ![套餐1](imgs/ml1.jpg)
 ![套餐1](imgs/ml2.jpg)
 
-
-## 资源地址（有密码）：
-#### 韩漫完结最新地址：https://pan.baidu.com/s/1ZiqgO56_k66Adk7XPiEoiQ
-
-#### 韩漫连载最新地址： https://pan.baidu.com/s/1sy9wsV9rZBkuONlALjPlog
-
-#### 3d韩漫最新地址：https://pan.baidu.com/s/1pvJOlbgUr2HA--R-Zkjosg
-
 ### 套餐二: ####
 **5月5日上架50部完结韩漫 50元打包**
 
